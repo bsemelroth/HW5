@@ -1,1 +1,0 @@
-Brody Semelroth Iowa Hawkeyes
